@@ -1,2 +1,2 @@
 # kingdubdub.github.io
-My website for projects 'n stuff.
+My website for projects 'n stuff. Pretty rad.
